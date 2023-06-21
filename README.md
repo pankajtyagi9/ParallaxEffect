@@ -1,1 +1,1 @@
-# ParallexEffect.github.io
+Link-https://pankajtyagi9.github.io/ParallexEffect/
